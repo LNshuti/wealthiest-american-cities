@@ -8,3 +8,8 @@ Given the growing wealth inequality globally, I found the exercise of studying w
 ### a. Overview
 
 ![image](https://github.com/LNshuti/wealthiest-american-cities/assets/13305262/f0f05ef1-3f02-4d56-9534-500b76791007)
+
+## 2. Washington D.C
+
+![image](https://github.com/LNshuti/wealthiest-american-cities/assets/13305262/ca0856dc-fbed-4195-a631-62169973e7bc)
+
