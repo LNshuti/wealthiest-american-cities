@@ -1,1 +1,1 @@
-# wealthiest-american-cities
+# Wealthiest American Cities
