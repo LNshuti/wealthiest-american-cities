@@ -21,3 +21,19 @@ Given the growing wealth inequality globally, I found the exercise of studying w
 
 ![image](https://github.com/LNshuti/wealthiest-american-cities/assets/13305262/ac71533e-a532-4d5b-86be-873804ddef37)
 
+## 6. Seattle
+
+![image](https://github.com/LNshuti/wealthiest-american-cities/assets/13305262/f3a36b5a-797f-4c59-a838-d8f7ae632b97)
+
+## 7. 
+
+
+## 8. 
+
+
+## 9.
+
+
+
+## 10.
+
