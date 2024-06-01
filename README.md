@@ -31,9 +31,14 @@ Given the growing wealth inequality globally, I found the exercise of studying w
 ## 8. 
 
 
-## 9.
+## 9. Hartford
+
+![image](https://github.com/LNshuti/wealthiest-american-cities/assets/13305262/e79d63b8-b31f-45d8-8908-9b5fbb7085b3)
 
 
 
-## 10.
+
+## 10. Bridgeport
+
+![image](https://github.com/LNshuti/wealthiest-american-cities/assets/13305262/7481eced-1a02-4f5a-bff1-65cee507116d)
 
