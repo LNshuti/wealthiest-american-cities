@@ -11,7 +11,10 @@ Given the growing wealth inequality globally, I found the exercise of studying w
 
 ![image](https://github.com/LNshuti/wealthiest-american-cities/assets/13305262/ca0856dc-fbed-4195-a631-62169973e7bc)
 
-## 3. 
+## 3. Concord
+
+![image](https://github.com/LNshuti/wealthiest-american-cities/assets/13305262/17115d9d-3635-4712-804b-00f738ae8a20)
+
 
 
 ## 4. 
