@@ -28,7 +28,10 @@ Given the growing wealth inequality globally, I found the exercise of studying w
 ## 7. 
 
 
-## 8. 
+## 8. New York City
+
+![image](https://github.com/LNshuti/wealthiest-american-cities/assets/13305262/a8cfd8e0-bc0f-428c-b783-0a72f8420579)
+
 
 
 ## 9. Hartford
